@@ -1,8 +1,8 @@
 - 👋 oii!! me chamo amanda
 - 👀 @flamengo 
 - 🌱 💕🤍
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 💞️ 1y
+- 📫 @amanda_grobe 
 
 <!---
 Amandagrobe/Amandagrobe is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

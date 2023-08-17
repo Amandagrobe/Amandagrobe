@@ -1,7 +1,7 @@
 - 👋 oii!! me chamo amanda
 - 👀 @flamengo 
 - 🌱 💕🤍
-- 💞️ 1y
+- 💞️ 11•03
 - 📫 @amanda_grobe 
 
 <!---
